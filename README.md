@@ -1,1 +1,0 @@
-# ar_26agosto_test8lr5dh
